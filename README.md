@@ -1,1 +1,1 @@
-UnetsCoin is gona take over Bitcoin and Etherium
+UnetsCoin is gonna take over Bitcoin and Etherium
